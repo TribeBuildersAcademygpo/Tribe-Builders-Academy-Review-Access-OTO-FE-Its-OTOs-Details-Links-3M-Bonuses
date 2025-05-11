@@ -9,6 +9,69 @@
 
 
 <hr class="" data-start="1396" data-end="1399" />
+# 🏛️ Tribe Builder’s Academy – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To receive **exclusive William bonuses**, you must purchase from the **Front-End link** below using the correct affiliate ID.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/d9km5h9/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🎓 Front End (FE): Tribe Builder’s Academy  
+🛠️ Build and scale your community-driven business  
+👉 Link:  
+`warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 💥 OTO 1: Tribe Builder’s Academy Explosion  
+🚀 Advanced strategies for explosive tribe growth  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 💬 OTO 2: Tribe Builder’s Academy Mega Messenger  
+📩 Supercharge your Facebook Messenger engagement  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🎤 OTO 3: Tribe Builder’s Academy Tribe Building LIVE  
+🎯 Access live sessions & real-time guidance  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🤝 OTO 4: Tribe Builder’s Academy Partner Program Early Access  
+🛍️ Reseller rights & early access to partnership program  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🎁 Bonus Page – See What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Purchase **Tribe Builder’s Academy (FE)** using the link above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm Step 2 via email for verification!
+
+---
 
 <h2 class="" data-start="1401" data-end="1443">What Exactly Is Tribe Builders Academy?</h2>
 <p class="" data-start="1445" data-end="1715"><strong data-start="1445" data-end="1471">Tribe Builders Academy</strong> is a no-fluff, step-by-step training created by <strong data-start="1520" data-end="1535">Wayne Crowe</strong>, a respected name in digital marketing. It’s designed to help <strong data-start="1598" data-end="1714">anyone—from complete beginners to seasoned marketers—build a Facebook group that does two things incredibly well</strong>:</p>
@@ -130,3 +193,66 @@
 <p class="" data-start="7392" data-end="7541">If you’ve been stuck trying to figure out how to grow online, this is your sign.<br data-start="7472" data-end="7475" /><strong data-start="7475" data-end="7541">Don’t scroll past this. Don’t put it off. Don’t keep guessing.</strong></p>
 <p class="" data-start="7543" data-end="7633"><strong data-start="7543" data-end="7633">Get Tribe Builders Academy. Build your group. Grow your business. And never look back.</strong></p>
 <p class="" data-start="7635" data-end="7688">👉 Grab your spot here before the price goes up.</p>
+# 🏛️ Tribe Builder’s Academy – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To receive **exclusive William bonuses**, you must purchase from the **Front-End link** below using the correct affiliate ID.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/d9km5h9/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🎓 Front End (FE): Tribe Builder’s Academy  
+🛠️ Build and scale your community-driven business  
+👉 Link:  
+`warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 💥 OTO 1: Tribe Builder’s Academy Explosion  
+🚀 Advanced strategies for explosive tribe growth  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 💬 OTO 2: Tribe Builder’s Academy Mega Messenger  
+📩 Supercharge your Facebook Messenger engagement  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🎤 OTO 3: Tribe Builder’s Academy Tribe Building LIVE  
+🎯 Access live sessions & real-time guidance  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🤝 OTO 4: Tribe Builder’s Academy Partner Program Early Access  
+🛍️ Reseller rights & early access to partnership program  
+👉 `warriorplus[dot]com/o2/a/d9km5h9/0/g`
+
+---
+
+## 🎁 Bonus Page – See What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Purchase **Tribe Builder’s Academy (FE)** using the link above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm Step 2 via email for verification!
+
+---
